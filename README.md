@@ -18,3 +18,5 @@
 ### Tecnologias que aprendi no curso
 
 ![Python](https://img.shields.io/badge/Python-14354C?style=for-the-badge&logo=python&logoColor=white)
+
+![goku-disappear](https://user-images.githubusercontent.com/122577018/212210699-a0395545-f20f-4a05-88ce-bdeb74fc00b7.gif)
