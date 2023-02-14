@@ -1,4 +1,4 @@
-## Olá! Me chamo Luiz Eduardo 🤙
+## Fala meu cria! Seja bem vindo ao meu perfil 🤙
 
 ### Minhas redes sociais 
 
