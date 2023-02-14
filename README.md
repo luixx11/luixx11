@@ -1,4 +1,4 @@
-## Fala meu cria! Seja bem vindo ao meu perfil 🤙
+## Fala meu cria, eja bem vindo ao meu perfil 🤙
 
 ### Minhas redes sociais 
 
